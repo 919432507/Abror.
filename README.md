@@ -1,0 +1,2 @@
+# Abror.
+Suniy intelekt
